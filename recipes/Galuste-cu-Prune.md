@@ -8,7 +8,7 @@ ingredients:
   - 1 kg potatoes, boiled and mashed
   - 2 eggs
   - 1/2 teaspoon cinnamon
-  - 2 tablespoons sugar
+  - 4 tablespoons sugar
   - ~200 g flour (add gradually, may not need all 300g)
   - plums, quartered
   - 2 tablespoons sugar (for plums)
