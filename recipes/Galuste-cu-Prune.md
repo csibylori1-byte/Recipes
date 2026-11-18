@@ -51,3 +51,4 @@ The dumplings are done when they float to the surface, then cook 5 more minutes.
 7. With wet palms, take a piece of dough, flatten it, place a piece of plum in the center, and wrap the dough around it, sealing well into a ball.
 8. Drop the dumplings into boiling water. Once they float to the surface, cook for 5 more minutes.
 9. Remove from the water and roll immediately in the buttered ladyfinger crumbs until fully coated.
+2 tablespoons to sprinkle on it
